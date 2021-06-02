@@ -1,2 +1,2 @@
 # 2sem.task2-3
-![2](https://user-images.githubusercontent.com/71177629/119239136-cfea9580-bb4f-11eb-8510-4631ef676e97.jpg)
+![1](https://user-images.githubusercontent.com/71177629/120464506-ac241c80-c3a5-11eb-96cd-fb2de04d74df.jpg)
